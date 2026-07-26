@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **AIML**
 
-- 📫 How to reach me **tejutejesh83@gmail.com**
+- 📫 How to reach me **tejeshpasala2004@gmail.com**
 
 - ⚡ Fun fact **I love Trekking**
 
